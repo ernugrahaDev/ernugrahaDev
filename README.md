@@ -1,4 +1,4 @@
-<img src="https://www.darkcarnival.co.za/wp-content/uploads/2017/11/odyssey-main.png"/>
+<img src="https://oriolserrabassa.com/wp-content/uploads/2022/01/Super-Mario-Odyssey.webp"/>
 - ⚡ Fun fact; I love nintendo
 
 <!---
