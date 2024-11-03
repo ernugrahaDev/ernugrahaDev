@@ -1,4 +1,3 @@
-<img src="https://oriolserrabassa.com/wp-content/uploads/2022/01/Super-Mario-Odyssey.webp"/>
 - ⚡ Fun fact; I love nintendo
 
 <!---
